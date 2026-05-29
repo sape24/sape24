@@ -1,5 +1,5 @@
 ## Hej! Jag är Samuel Petersson 👋
-23 år gammal och Studerar till Webbutvecklare på Mittuniversitetet 
+25 år gammal och Studerar till Webbutvecklare på Mittuniversitetet 
 
 
 
